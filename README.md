@@ -1,2 +1,6 @@
 # hello-world
-Just about anything food and MD
+
+Hellow fellow terrícolas!
+
+This is Daniel, loves coffee and a good ceviche (the Peruvian ones of course!
+Also Vikedin!
